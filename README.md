@@ -5,5 +5,4 @@ Tug
 Tghkn
 Rugk
 Hhjk
-Bbgffghjjj
-Vvjk
+Bbgffghjj
