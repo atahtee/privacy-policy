@@ -4,5 +4,4 @@ Tug
 
 Tghkn
 Rugk
-Hhjk
-B
+Hh
