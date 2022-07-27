@@ -3,5 +3,4 @@ dd
 Tug 
 
 Tghkn
-Rugk
-Hh
+Ru
