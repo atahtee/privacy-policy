@@ -2,8 +2,5 @@
 Ghk
 Jkgdhkgc
 J
-Ht
-Hh
-ttttt
-ff
+
 f
